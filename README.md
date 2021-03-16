@@ -1,1 +1,1 @@
-# ignaz-semmelweis's-discovery
+# Ignaz Semmelweis's discovery
